@@ -1,4 +1,4 @@
-### <div align="center">will back to [main acc](https://github.com/archangel-12) until it got reinstated for the unknown reason. this is just semi burner acc soon deleted</div>
+### <div align="center">oh, don't even bother, will back to [main acc](https://github.com/archangel-12) until it got reinstated for the unknown reason. this is just semi burner acc soon deleted</div>
 
 <table align="center">
   <tr>
